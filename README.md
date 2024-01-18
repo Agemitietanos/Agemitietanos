@@ -1,0 +1,4 @@
+- 🌱 I'm Agemitietanos
+- 👯 I’m looking to collaborate on machine learning, NLP, and AI Ethics Projects
+- 📫 How to reach me agemitietanos@gmail.com
+- ⚡ Fun fact: working out and 🧘🏻‍♀️Yoga
